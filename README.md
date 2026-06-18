@@ -1,1 +1,3 @@
-# kisswave1
+KISSWAVE hướng đến việc mang lại những sản phẩm đồ bơi và thời trang biển kết hợp giữa tính thẩm mỹ, sự thoải mái và tính ứng dụng thực tế. Chúng tôi tin rằng mỗi người phụ nữ đều xứng đáng tự tin thể hiện phong cách của mình trong những chuyến du lịch, kỳ nghỉ hay các hoạt động ngoài trời.Bên cạnh việc phát triển sản phẩm, KISSWAVE cũng đầu tư mạnh vào trải nghiệm mua sắm trực tuyến, nội dung hữu ích và các giải pháp số nhằm phục vụ khách hàng tốt hơn.Tìm hiểu thêm về câu chuyện hình thành và định hướng phát triển của thương hiệu tại:
+https://kisswave.store/gioi-thieu/
+#KISSWAVE #ThoiTrangBien #DoBoiNu #SEO #DigitalMarketing #ThuongHieuViet
